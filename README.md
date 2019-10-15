@@ -1,2 +1,1 @@
 #ProgramowanieSpotkanie1Semestr1
-#ProgramowanieSpotkanie1Semestr1
